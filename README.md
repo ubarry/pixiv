@@ -1,12 +1,12 @@
 # contents
 
 - violet blue
-#オリジナル violet blue - 青十紅 ao+beni的插画
+#オリジナル violet blue - 青十紅 ao+beni的插画 
 2次元⇄3次元ファッションブランド【Mille Grape】
-web store ▶︎ https://www.millegrape.com/
-イラスト内のデザインを実現させるファッションブランドの立ち上げをすることとなりました。
-イラスト制作、デザイン全面監修、お洋服も自ら見て触って調整を重ね取り組んでいます。
-応援頂けますと大変嬉しいです！
+web store ▶︎ https://www.millegrape.com/ 
+イラスト内のデザインを実現させるファッションブランドの立ち上げをすることとなりました。 
+イラスト制作、デザイン全面監修、お洋服も自ら見て触って調整を重ね取り組んでいます。 
+応援頂けますと大変嬉しいです！ 
 
 - vertigo
 #オリジナル vertigo - Re°的插画
@@ -60,3 +60,11 @@ https://pixiv-waengallery.com/exhibition/yoneyama_mai_she/
 
 - 無題
 #創作 無題 - TABAO的插画
+
+- 無題
+#女の子 無題 - TABAO的插画
+
+- Lucy
+#女の子 Lucy - TABAO的插画
+アニメ良かったので久しぶりにファンア～～ト 
+ゲームやってない人も楽しめるから是非見てみて
