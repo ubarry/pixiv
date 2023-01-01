@@ -216,3 +216,44 @@ PSD and Process→https://kyusoukyu.fanbox.cc/posts/4860845
 
 - アーミヤ<br>
 #アークナイツ アーミヤ - 久蒼穹＠お仕事募集中的插画
+
+- 空のランタン<br>
+#wlop 空のランタン - wlop的插画
+
+- Jade<br>
+#ghostblade Jade - wlop的插画
+
+- illume<br>
+#オリジナル illume - 米山舞的插画<br>
+雑誌　イラストレーション 2022年3月号　表紙<br>
+https://amzn.asia/d/4mYNw8P
+
+- 星も願いも呑み干して<br>
+#星 星も願いも呑み干して - アキヤミ的插画<br>
+溢れた分だけ静かに注ごう
+
+- love you!<br>
+#オリジナル love you! - 姐川的插画<br>
+love me!
+
+- 謎のiPhoneX…？<br>
+#Fate/GrandOrder 謎のiPhoneX…？ - 咲良ゆき /사쿠라 유키的插画<br>
+思い付きです…X手に入れたら壁紙などにどうぞ<br>
+む、むねの模様 逆だった～！！
+
+- SEE YOU<br>
+#オリジナル SEE YOU - 米山舞的插画<br>
+季節は過ぎるけど、また会えるね
+
+- pyaaa<br>
+#rkgk pyaaa - _LM7_的插画
+
+- 血<br>
+#東方 血 - 河CY的插画<br>
+『東方Project』からの西行寺幽々子<br>
+（今）不死の幽霊としての幽々子対（昔）自殺する前の人間としての過去ゆゆ<br>
+彼女なんて東方全キャラクターの中で過去の生活が一番救いのない暗い話だったよね…。<br>
+過去もこ版：<br>
+illust/63992392
+
+- 
