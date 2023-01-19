@@ -301,3 +301,27 @@ illust/63992392
 - 霊夢の日<br>
 #東方 霊夢の日 - かめぱすた的插画
 
+- Scarlet<br>
+#原创 Scarlet - NIXEU的插画<br>
+NEW PATREON FOR 2023 -&gt; Get all monthly drawings for 5$ and support my art: https://patreon.com/nixeu<br>
+私のメタルポスター// My metal posters: https://displate.com/nixeu?art=6317661aad5e2<br>
+透かしなしの6K // 6K w/o watermark: https://gumroad.com/nixeu
+
+- 无题<br>
+#人物の練習 无题 - moubei的插画
+
+- はぐれメタル<br>
+#はぐれメタル はぐれメタル - ケースワベ【K-SUWABE】的插画
+
+- EGO - Es<br>
+#オリジナル EGO - Es - 米山舞的插画<br>
+2021.04.03〜04.14<br>
+&quot;EGO&quot; Yoneyama Mai 2nd Exhibition　メインビジュアル<br>
+https://monokomono.com/events/mai-yoneyama-ego-2021/
+
+- レミフラ<br>
+#東方 レミフラ - ごとー🌱的插画<br>
+依頼をいただいて痛ボード（スノーボードの板）にするためのイラストを制作しました。
+
+- 答<br>
+#オリジナル 答 - 夜宮さてこ的插画
