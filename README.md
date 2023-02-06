@@ -367,3 +367,7 @@ Save･Use･Translate･Reproduction is prohibited. 転載使用等禁止。
 
 - zzz与罪袋<br>
 #zzz10258 zzz与罪袋 - loatimid的插画
+
+- 竹取の煙<br>
+#東方永夜抄 竹取の煙 - Toriki的插画<br>
+I wanna die with you.
