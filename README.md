@@ -371,3 +371,16 @@ Save･Use･Translate･Reproduction is prohibited. 転載使用等禁止。
 - 竹取の煙<br>
 #東方永夜抄 竹取の煙 - Toriki的插画<br>
 I wanna die with you.
+
+- チルノ
+#日常 チルノ - さんぱち的插画
+
+- ようむ
+#東方project ようむ - さんぱち的插画
+う
+
+- Youmu
+#東方Project Youmu - eps3rd的插画
+
+- チョコレートアレルギー
+#東方Project チョコレートアレルギー - 京田スズカ的插画
