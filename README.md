@@ -372,15 +372,27 @@ Save･Use･Translate･Reproduction is prohibited. 転載使用等禁止。
 #東方永夜抄 竹取の煙 - Toriki的插画<br>
 I wanna die with you.
 
-- チルノ
+- チルノ<br>
 #日常 チルノ - さんぱち的插画
 
-- ようむ
-#東方project ようむ - さんぱち的插画
+- ようむ<br>
+#東方project ようむ - さんぱち的插画<br>
 う
 
-- Youmu
+- Youmu<br>
 #東方Project Youmu - eps3rd的插画
 
-- チョコレートアレルギー
+- チョコレートアレルギー<br>
 #東方Project チョコレートアレルギー - 京田スズカ的插画
+
+- 小悪魔<br>
+#東方 小悪魔 - かめぱすた的插画
+
+- 稀神サグメ<br>
+#東方 稀神サグメ - jan的插画
+舌禍をもたらす女神
+
+- 蓮子<br>
+#東方 蓮子 - かめぱすた的插画
+
+- 
