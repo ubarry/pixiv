@@ -495,3 +495,13 @@ Febriさんにて連載中のコンセプト企画「太陽に仕える12人の�
 - 無題<br>
 #オベロン(Fate) 無題 - AU的插画<br>
 死
+
+- 見つめる宝石<br>
+#オリジナル 見つめる宝石 - 風李たゆ的插画
+
+- Dreamy<br>
+#バーチャルYouTuber Dreamy - BlankSensei的插画<br>
+I was making this for Uge-chan&#39;s birthday&#44; but I finished it too late. (╥ᆺ╥；)
+I still decided to upload it. Better late than never?<br>
+If Uge-chan sees this Happy birthday! umu (sorry it&#39;s late)
+
