@@ -505,3 +505,26 @@ I was making this for Uge-chan&#39;s birthday&#44; but I finished it too late. (
 I still decided to upload it. Better late than never?<br>
 If Uge-chan sees this Happy birthday! umu (sorry it&#39;s late)
 
+- パワー
+#チェンソーマン パワー - 望月けい的插画
+
+- FLASH BACK
+#オリジナル FLASH BACK - Mika Pikazo的插画
+REVENGE POP 
+東京 渋谷Hzにて、約3年ぶりに展示会をします。
+2022/12/10(土)〜12/29(木)
+どうぞよろしくお願いします！
+特設サイト:https://revenge-pop.mikapikazo.info
+
+12/10(土)・11(日)の入場整理券の受付（先着順）:
+https://t.livepocket.jp/t/revenge-pop_mikapikazo
+
+展示会「REVENGE POP」
+12.10Sat - 12.29Thu
+10.00 - 20.00(入場無料)
+東京都渋谷区宇田川町4−3 1F
+
+- 世界は向きを変える
+#風景 世界は向きを変える - banishment的插画
+
+- 
